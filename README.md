@@ -42,10 +42,10 @@ Advanced filmmaking, motion graphics, and creative storytelling techniques.
 - Content Strategy  
 
 ## 📫 Let's Connect:
-YouTube: https://www.youtube.com/@tamernader  
-Instagram: https://www.instagram.com/tamernader.yt/
-LinkedIn: https://www.linkedin.com/in/tamer-herzallah/
-Behance: https://www.behance.net/tamernader14
+- YouTube: https://www.youtube.com/@tamernader  
+- Instagram: https://www.instagram.com/tamernader.yt/
+- LinkedIn: https://www.linkedin.com/in/tamer-herzallah/
+- Behance: https://www.behance.net/tamernader14
 
 ## 🌟 Facts About Me:
 - Passionate about storytelling through visuals  
